@@ -1,2 +1,0 @@
-# garansikotama
-Garansi KotamaShoes
